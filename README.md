@@ -11,7 +11,7 @@
 Image source : www.Pininterest.com
 ## Labrador Retriever
 1. These dogs can be trained easily.
-2. They are very friendly dogs.
+2. They are very friendly.
 
 ![Labrador Retriever](https://keyassets.timeincuk.net/inspirewp/live/wp-content/uploads/sites/3/2016/04/Best-labrador-colour-630x400.jpg)
  
