@@ -17,11 +17,15 @@ Image source : www.Pininterest.com
  
 Image source : https://www.thefield.co.uk/gundogs/best-labrador-colour-31845
 ## Links
-Know More about the above dog breeds by clicking below
+
+For my Linkedin Profile click below
+
+[Linkedin](https://www.linkedin.com/in/bharath-kumar-gandhasiri-61a34914b/)
+
+
+Know More about the Siberian Husky and Labrador Retriever breeds by clicking below
 
 [Siberian Husky](https://www.akc.org/dog-breeds/siberian-husky/)
 
-[Labrador Retriver](https://thelabradorclub.com/)
+[Labrador Retriever](https://thelabradorclub.com/)
 
-For my Linkedin Profile click below
-[Linkedin](https://www.linkedin.com/in/bharath-kumar-gandhasiri-61a34914b/)
